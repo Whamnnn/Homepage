@@ -1,1 +1,1 @@
-# Homepage
+# Tamo Design Homepage copy
